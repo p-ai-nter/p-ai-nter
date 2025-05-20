@@ -1,7 +1,7 @@
 <p align="center">
-<a href="https://rentry.co/2time">main　 url</a>
+<a href="https://rentry.co/2time">main　 rentry</a>
  <br>
-<a href="https://rentry.co/bpdtwotime">ponytown　 info</a>
+<a href="https://rentry.co/bpdtwotime">ponytown　 rentry</a>
  <br>
  <a href="https://neospring.org/@2time">contact　 (neo)</a>　 　  <a href="https://puredivinity.atabook.org/">sign　 my　 atabook</a>
 </p>
