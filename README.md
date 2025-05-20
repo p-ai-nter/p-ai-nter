@@ -3,7 +3,7 @@
  <br>
 <a href="https://rentry.co/bpdtwotime">ponytown　 info</a>
  <br>
- <a href="https://neospring.org/@2time">contact　 (neo)</a>
+ <a href="https://neospring.org/@2time">contact　 (neo)</a>　 　  <a href="https://puredivinity.atabook.org/">sign　 my　 atabook</a>
 </p>
 <p align="center">
 <img src="https://i.postimg.cc/vHP8cyGW/INSPEKTA-ICON.webp?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=2772&q=80" width="100" height="100" border="10"/>
