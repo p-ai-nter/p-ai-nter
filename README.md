@@ -12,7 +12,10 @@
 2 　or 　harvey!　  int　welcomed　 ,　 c+h 　encouraged.
  <br>
  he 　she. 　masc 　terms　 pref.　 plural　 system
-</p>
-<p align="center">
-
+ <br>
+  　
+<br>
+often  　get  　distracted 　 + 　 offtab!
+ <br>
+ please 　whisp 　& 　wait 　for 　any 　responses :-3
 </p>
