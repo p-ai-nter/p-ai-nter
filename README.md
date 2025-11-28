@@ -9,9 +9,9 @@
 <img src="https://files.catbox.moe/45qtq0.png" width="100" height="100" border="10"/>
 </p>
 <p align="center">
-clemens 　or 　harvey!　  int　welcomed　 ,　 c+h 　encouraged.
+clemens or harvey!　  int　welcomed　 ,　 c+h 　encouraged.
  <br>
- he 　she. 　masc 　terms　 pref.　 plural　 system
+ he she. 　masc 　terms　 pref.　 plural　 system
  <br>
   　
 <br>
