@@ -11,7 +11,7 @@
 <p align="center">
 clemens or harvey!　  int　welcomed　 ,　 c+h 　encouraged.
  <br>
- he she. 　masc 　terms　 pref.　 plural　 system
+ he she. 　masc 　terms　 pref.　 plural system
  <br>
   　
 <br>
