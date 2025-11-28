@@ -6,7 +6,7 @@
  <a href="https://herelies.straw.page">strawpage</a>　 　  <a href="https://puredivinity.atabook.org/">sign　 my　 atabook</a>
 </p>
 <p align="center">
-<img src="https://i.postimg.cc/vHP8cyGW/INSPEKTA-ICON.webp?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=2772&q=80" width="100" height="100" border="10"/>
+<img src="https://files.catbox.moe/45qtq0.png" width="100" height="100" border="10"/>
 </p>
 <p align="center">
 clemens 　or 　harvey!　  int　welcomed　 ,　 c+h 　encouraged.
